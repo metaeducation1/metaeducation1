@@ -1,4 +1,4 @@
-MBBS Admission in Nepal:- https://www.metaeducationindia.com/mbbs-in-nepal
+<p><a href="https://www.metaeducationindia.com/mbbs-in-nepal">MBBS Admission in Nepal</a></p>
 
 Contact Us For More Details:- 
 
